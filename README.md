@@ -35,7 +35,7 @@ click here
 **Akanksha Das**  
 💼Associate Business Analyst| ETL & Power BI Developer  
 📍 India  
-📧 [optional: add your LinkedIn or email link here]
+📧 www.linkedin.com/in/akankshad6372
 
 ---
 
